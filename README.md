@@ -1,0 +1,2 @@
+# function.php
+SUBSCRIBE RAMZ TUTORIAL CHANNEL 
